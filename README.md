@@ -2,7 +2,7 @@
 - 👀 I’m interested in Bots Discord
 - 🌱 I’m currently learning Python
 - 💞️ I’m not looking to collaborate
-- 📫 How to reach me: Felosi#0002 on Discord
+- 📫 How to reach me: Felosi#6666 on Discord
 
 <!---
 FelosiDev/FelosiDev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
