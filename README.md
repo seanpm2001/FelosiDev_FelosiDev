@@ -6,4 +6,4 @@
 - 👀 I’m interested in JavaScript, Python And Html
 - 🌱 I’m currently creating a Discord Bot
 - 💞️ I am a Developer, Seller, Server Maker, Graphic designer, Video editor and Discord Staff
-- 📫 How to reach me: Felosi#6096 on Discord or felosidev@gmail.com 
+- 📫 How to reach me: felosi on Discord or felosidev@gmail.com 
