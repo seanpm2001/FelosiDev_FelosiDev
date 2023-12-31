@@ -4,6 +4,8 @@
 
 🇨🇦・Felosi
 
+💻・I make some tools for Discord
+
 🌴・Dev, Seller, Staff & More
 
 🚥・Contact me on [Discord](https://discord.com/users/779716357872680970)
