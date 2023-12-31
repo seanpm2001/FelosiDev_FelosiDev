@@ -10,4 +10,6 @@
 
 🚥・Contact me on [Discord](https://discord.com/users/779716357872680970)
 
+----
+
 <p align="center"><img src="https://profile-counter.glitch.me/{FelosiDev}/count.svg" alt="psyc0d3r :: Visitor's Count" /></p>
