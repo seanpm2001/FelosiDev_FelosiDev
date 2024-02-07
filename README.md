@@ -1,4 +1,4 @@
-![](https://share.creavite.co/Cgo0Zr5kBl6uE4M6.gif)
+![]([https://share.creavite.co/Cgo0Zr5kBl6uE4M6.gif](https://images-ext-1.discordapp.net/external/dw8Sew8nbWM4TVtQospmyEB2OM5htYGwfEh8udOC1Gk/https/share.creavite.co/Cgo0Zr5kBl6uE4M6.gif?width=544&height=192))
 
 ----
 
